@@ -1,3 +1,3 @@
 # MFE_Courses
 
-For all the future lose souls
+For all the future lost souls
